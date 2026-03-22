@@ -1,9 +1,12 @@
 # ALLI VIENE EL MEMECOCO
 Escucha PIXELS PAC-MAN BATTLE | Allí viene el Memecoco de Addonius, un potente track de electrónica Drum & Bass con esencia dubstep. Lanzamiento 2025 bajo el sello Addonius. ¡Descubre el sonido del Memecoco!
 
-pixels pacman battle, alli viene el memecoco, memecoco, addonius, dubstep 2025, drum and bass, musica electronica, musica electronica 2025, track dubstep, dnb español, dubstep español, pacman musica, musica gaming, edm 2025, lanzamiento addonius, musica urbana electronica, beats dubstep, musica para videojuegos
+tags: pixels pacman battle, alli viene el memecoco, memecoco, addonius, dubstep 2025, drum and bass, musica electronica, musica electronica 2025, track dubstep, dnb español, dubstep español, pacman musica, musica gaming, edm 2025, lanzamiento addonius, musica urbana electronica, beats dubstep, musica para videojuegos
 
 Links:
+- [Memecoco.es](https://memecoco.es/)
+- [Dubstep - Memecoco II Videoclip Pixels Pac-man battle film](https://youtu.be/v4n_feAimkI)
+- [DrumAndBass - Memecoco II Videoclip](https://youtu.be/iBUX6NxaMFM)
 - [Addonius Website](https://www.addonius.com/)
 - [Apple Music](https://music.apple.com/es/album/1836643577?app=music&at=1l3vpUI&ct=LFV_452f224ba0264156b2bb7d2dc32aaee9&itscg=30440&itsct=catchall_p1&lId=213908454&cId=none&sr=1&src=Linkfire&ls=1)
 - [Spotify](https://open.spotify.com/album/0qFocte1HDU3IEtT0fQPgl?go=1)
